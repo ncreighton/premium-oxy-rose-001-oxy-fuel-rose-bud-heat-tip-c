@@ -1,0 +1,2 @@
+# premium-oxy-rose-001-oxy-fuel-rose-bud-heat-tip-c
+Tired of losing track of which heat tip gave that perfect rose petal curve, or misplacing your favorite glass rods mid-project?  The Oxy Fuel Rose Bud &amp; Heat Tip Craft Studio Notion template eliminates the chaos of managing an oxy-fuel glass studio by organizing every torch tip, glass color, and project step in one place. It's the only template bui
